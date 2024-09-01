@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Azrielgamerplays
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing at the moment i probly will soon
+- 📫 How to reach me youcantceemeiamgone@gmail.com
+- 😄 Pronouns: male
+- ⚡ Fun fact: im a 13 year old and i have been intrested in programing for 5 or 6 years i know how to stay anonymous online.
+- im a Linux user i prefer linux because it's light and and not heavy like windows but thats just how i see windows, heavy dont get mad thats just my propective
